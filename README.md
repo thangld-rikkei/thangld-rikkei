@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @thangld-rikkei
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m falling in love with Ha Ngoc Anh
 - 📫 How to reach me: guess
 
 <!---
